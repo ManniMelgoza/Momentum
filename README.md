@@ -1,0 +1,1 @@
+Hello everyone and welcome to the Momentum. This application is a tool to empower you to help you visualize your debt. This tool is intended to help you keep your momentum going as you work on crushing your debt.
